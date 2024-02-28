@@ -1,1 +1,1 @@
-# Title: Embracing Sustainability: Revolutionizing Car Manufacturing Through Edge Computing
+# Embracing Sustainability: Revolutionizing Car Manufacturing Through Edge Computing
