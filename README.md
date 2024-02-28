@@ -1,1 +1,1 @@
-# ChandanBG EdgeComputing Disertation
+#Title: Embracing Sustainability: Revolutionizing Car Manufacturing Through Edge Computing
